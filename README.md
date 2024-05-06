@@ -1,1 +1,1 @@
-![Uploading screencapture-file-D-2023-DOWNLOADS-FOLDER-Desktop-1-New-folder-Chairs-index-html-2024-05-06-08_00_41.png…]()
+(https://github.com/hsharma700/chairs/assets/70624640/a76e1fff-fb4d-4f91-861f-5bd04feb710b)
